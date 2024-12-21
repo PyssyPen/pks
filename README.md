@@ -7,5 +7,5 @@
 ### Семестр - 5 семестр, 2024-2025 гг.
 _____
 ![Снимок экрана от 2024-12-21 23-34-11](https://github.com/user-attachments/assets/eb5d79ca-1975-4669-b47b-24da5bbd690e)
-![Снимок экрана от 2024-12-21 23-34-47](https://github.com/user-attachments/assets/7ae00ad5-9f43-412c-8990-f5bb31a4db43)
+![Снимок экрана от 2024-12-21 23-37-28](https://github.com/user-attachments/assets/820b8129-d774-4423-a9e6-81a5835bafbc)
 ![Снимок экрана от 2024-12-21 23-36-36](https://github.com/user-attachments/assets/73157bfd-c09d-4944-9afb-cbc67f969987)
