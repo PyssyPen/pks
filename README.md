@@ -6,3 +6,5 @@
 ### Преподаватель: Адышкин Сергей Сергеевич
 ### Семестр - 5 семестр, 2024-2025 гг.
 _____
+![Снимок экрана от 2024-12-23 03-53-37](https://github.com/user-attachments/assets/1c024822-f004-4acb-b305-925863f4bddc)
+![Снимок экрана от 2024-12-23 03-53-57](https://github.com/user-attachments/assets/ff2d0564-d1d4-4ed3-b9fa-16dab2cb865a)
